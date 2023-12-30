@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TechLabsUK
+- 👀 I’m interested in Tech
+- 🌱 I’m currently learning about Tech
+- 💞️ I’m looking to collaborate on Tech
+- 📫 How to reach me jamesttheakston2@gmail.com
